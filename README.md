@@ -2,7 +2,7 @@
 ### Nice to see ya !!
 ## Hola, I'm K 🐾 
 
-**love-y-ourself/love-y-ourself** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**love-y-ourself/love-y-ourself** is a ✨ _special_ ✨ repository.
 
 ## 🤫 Whisper to u!!! I am who i am 😶‍🌫️
 - ☺️ My full name is Le The Khoi. Please, call me K 😉
